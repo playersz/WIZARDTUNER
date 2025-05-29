@@ -1,1 +1,1 @@
-Activation code: ZXC
+Activation code: NULL
